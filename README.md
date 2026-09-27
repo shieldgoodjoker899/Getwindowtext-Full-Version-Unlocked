@@ -1,0 +1,1 @@
+# Getwindowtext-Full-Version-Unlocked
